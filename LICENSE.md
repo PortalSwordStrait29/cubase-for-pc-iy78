@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows exclusive Script: loop-library & automation offers the most advanced Cubase for PC | Cubase for Windows script, with loop-library and
 
 
 
